@@ -1,5 +1,12 @@
 # TUGAS-PERDANA
 
+Nama : septiyan adi Nugroho
+
+
+Kelas : 5D
+
+
+Nim : 17090105
 
 
 Screenshot 
